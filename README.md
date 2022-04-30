@@ -6,7 +6,7 @@
 
 ![](https://notes-1302258083.cos.ap-guangzhou.myqcloud.com/202204300106793.jpg)
 
-由于精力有限**交流群**以后就不开放了，「充电」或「赞赏」的的福利改为**加速下载常用资源**，具体请看：[《赞赏福利 & 加速下载》](https://mp.weixin.qq.com/s/eokK0hyacb61cvWmoBLkJw)
+由于精力有限**交流群**以后就不开放了，充电或赞赏的的福利改为**加速下载常用资源**，具体请看：[《赞赏福利 & 加速下载》](https://mp.weixin.qq.com/s/eokK0hyacb61cvWmoBLkJw)
 
 
 
